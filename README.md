@@ -1,4 +1,4 @@
-▸ 👋 Hi, I’m Niktia
+▸ 👋 Hi, I’m Nikita
 
 ▸ 👀 I’m interested in programming
 
